@@ -24,6 +24,6 @@ How to install the theme.
 
 Preview Theme: https://news.95media.co.uk
 
-Kindly let me know to make the theme better.
+Kindly let me how to make the theme better.
 
 Thank you.
